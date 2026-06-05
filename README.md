@@ -3,4 +3,4 @@ I will face to myself
 
 every thing is worthly to be taste.
 
-learn and practice will guild me to future
+learn and practice will guide me to future
